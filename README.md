@@ -16,7 +16,7 @@
 
 ## 📫 Reach me
 - 💼 [LinkedIn Profile](https://www.linkedin.com/in/aziz-ragab-504520183/)
-- 📧 Email: your.email@example.com *(عدّل الإيميل لو حبيت)*
+- 📧 Email:azizragab55@gmail.com
 
 ---
 
